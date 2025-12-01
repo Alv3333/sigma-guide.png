@@ -1,1 +1,1 @@
-# sigma-guide.png
+Fuck u douglas
